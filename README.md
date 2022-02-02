@@ -1,1 +1,0 @@
-# Menacing-Text-Scrolling-Effect
